@@ -1,0 +1,2 @@
+# polatyayincilik
+GitHub Pages
